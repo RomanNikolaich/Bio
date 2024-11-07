@@ -7,4 +7,5 @@
 Мне очень нравится писать рецензии на кино- и музыкальные произведения.
 Я веду каналы на платформах [Дзен](https://dzen.ru/rnikolaich) и [Nuum](https://nuum.ru/channel/romannikolaich)
 
-![N](D:\Документы\Movie Studio Platinum 13.0 Проекты\Nómadland\На русском\Fotoram.io.jpg)
+![N](https://www.markdowntoolbox.com/MarkdownToolboxSmall.png)
+
